@@ -1,4 +1,3 @@
-### Hi there 👋
 
 more at https://kittens.nz/
 
